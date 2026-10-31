@@ -1,4 +1,4 @@
-<img width="100%" alt="actuallynotreallyhumanaustin" src="https://github.com/user-attachments/assets/bd72fee3-8464-4ecb-a6eb-c8e985105a79" />
+<img width="100%" alt="actuallynotreallyhumanaustin" src="https://github.com/user-attachments/assets/99723c70-b7d0-4275-8b41-7e2676a296cb" />
 
 $${{\color{#FF0000}\Large{\textsf{>>! ! ! READ my BYF before interacting or trying to BEFRIEND mii!! ! ! ! \}}}}$$
 
@@ -90,4 +90,4 @@ $${{\color{#FF0000}\Large{\textsf{>>Happy tree friends  \}}}}$$
 $${{\color{#FF0000}\Large{\textsf{>>Friday the 13th  \}}}}$$
 $${{\color{#FF0000}\Large{\textsf{>>DIVE!  \}}}}$$
 
-<img width="100%" alt="hv- cms husb" src="https://github.com/user-attachments/assets/bce209a0-c7f1-4208-b522-5e51edc25645" /><img width="100%" alt="hv- austins husb" src="https://github.com/user-attachments/assets/a8349500-1c6a-4f26-ac96-f4b00d0019a8" /><img width="100%" alt="stamp lineup" src="https://github.com/user-attachments/assets/c3aa785a-42ba-4e65-9bbe-8ee39c8846d6" /><img width="100%" alt="humanaustin" src="https://github.com/user-attachments/assets/16bcfd4a-d6f4-4963-804f-6c4da5280585" />
+<img width="100%" alt="hv- cms husb" src="https://github.com/user-attachments/assets/bce209a0-c7f1-4208-b522-5e51edc25645" /><img width="100%" alt="hv- austins husb" src="https://github.com/user-attachments/assets/a8349500-1c6a-4f26-ac96-f4b00d0019a8" /><img width="100%" alt="stamp lineup" src="https://github.com/user-attachments/assets/c3aa785a-42ba-4e65-9bbe-8ee39c8846d6" /><img width="100%" alt="humanaustin" src="https://github.com/user-attachments/assets/d693f5f5-f165-4a47-9bfb-66499bc5bbbd" />
